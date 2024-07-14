@@ -1,1 +1,0 @@
-# scheeftech-blog
